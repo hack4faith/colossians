@@ -47,6 +47,6 @@ Write a prayer asking the Holy Spirit for His leading and teaching as you study 
 - William Barclay's Daily Study Bible
 
 
-Copyright Hack4Fatih and Donovan Follette. This material is subject to [Creative Common License BY-NC-SA 4.0](https://creativecommons.org/licenses/by-nc-sa/4.0/)
+Copyright Hack4Faith and Donovan Follette. This material is subject to [Creative Commons License (CC BY-NC-SA 4.0)](https://creativecommons.org/licenses/by-nc-sa/4.0/)
 
 
