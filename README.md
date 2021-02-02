@@ -37,7 +37,7 @@ James 2:18-20 -- *"But someone will say, 'You have faith [think **#Hack4Faith**]
     - Share their thoughts with others in a team meet-up whether in-person or virtual
     - Convert **#YourFaith2Action** in practical ways
 
-**Content Is Free To All:**
+**Content Is Free To All:** Subject to the [Creative Commons License (CC BY-NC-SA 4.0)](https://creativecommons.org/licenses/by-nc-sa/4.0/)
 
 The challenge-based hack format is certainly free for all to use, but **#Hack4Faith** and **#YourFaith2Action** studies/content created according to this format are intended to be open source, *not to be* monetized in any way, and should only make use of free web-based Bible study resources to be available to all. God's Word is free -- and the Holy Spirit teaches us without cost because Jesus paid the price for His tutelage. Jesus said in Matthew 10:8, *"…Freely you have received; freely give."* **#Hack4Faith** and **#YourFaith2Action** are heart-aligned with these words.
 
