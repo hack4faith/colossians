@@ -1,0 +1,52 @@
+## **Challenge 1 - Historical Context**
+
+**Introduction:**
+
+Just like when you write an email to someone, that email has a purpose to communicate a specific message. In the same way, every letter (epistle) in the New Testament exists for a specific purpose (occasion) to address specific issues that its readers were facing in their day-to-day life and faith.
+
+**Challenge Scenario:**
+
+You've started to read the book of Colossians and you've never read it before or you have read it but now you want to get some background on what was the purpose for this letter? What was the city like historically and culturally at the time of this writing? What were the big issues facing the believers that the apostle Paul is seeking to help them with? What false teachings does this letter specifically address?
+
+**Reading:**
+
+Read the "Book Overview - Colossians" from William Barclay's Daily Study Bible - Colossians here, https://www.studylight.org/commentaries/dsb/colossians.html. 
+
+**Challenges:**
+1. Prayerfully, list at least four discoveries from this overview of Colossians that you specifically want to lock down in your understanding and faith while studying this Holy Spirit inspired letter from the apostle Paul. 
+    1. Discovery:
+    1. Discovery:
+    1. Discovery:
+    1. Discovery: 
+
+1. From the issues facing the Colossian believers, in your day-to-day life, how do you see these same issues facing believers today?
+
+**#YourHack4Faith:**
+
+Write 4 faith phrases that are your takeaways from this challenge.
+1. Phrase - 
+1. Phrase - 
+1. Phrase - 
+1. Phrase - 
+
+**#Faith2Action:**
+
+From your Faith phrases above, write 2 action statements.
+1. Statement - 
+1. Statement - 
+
+**Prayer:**
+
+Write a prayer asking the Holy Spirit for His leading and teaching as you study this letter.
+
+**Discussion Preparation:**
+- List any questions you would like to discuss.
+- Identify 2 key discoveries you would like to share.
+
+**Online Resources:**
+- William Barclay's Daily Study Bible
+
+
+Copyright Hack4Fatih and Donovan Follette. This material is subject to [Creative Common License BY-NC-SA 4.0](https://creativecommons.org/licenses/by-nc-sa/4.0/)
+
+
