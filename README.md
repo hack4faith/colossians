@@ -1,2 +1,2 @@
 # colossians
-The challenge-based study in the book of Colossians.
+This repository is for the challenge-based #Hack4Faith study of the Letter to the Colossians.
