@@ -1,6 +1,6 @@
 ## **#Hack4Faith Team Meet-ups**
 
-One part of studying God's Word is the joy in sharing what you have learned and hearing what others have learned from the Holy Spirit's teaching. **#Hack4Faith** team meet-ups support this through a shared facilitation model -- a different team member is intended to facilitate each meet-up. Therefore, there is no designated "teacher" in a **#Hack4Faith** team. Questions that arise become opportunities for further research, discussion with others outside the team and then insights can be shared back with the team at the next meet-up. How cool!
+One part of studying God's Word is the joy in sharing what you have learned and hearing what others have learned from the Holy Spirit's teaching (John 14:26). **#Hack4Faith** team meet-ups support this through a shared facilitation model -- a different team member is intended to facilitate each meet-up. Therefore, there is no designated "teacher" in a **#Hack4Faith** team. Questions that arise become opportunities for further research, discussion with others outside the team and then insights can be shared back with the team at the next meet-up. How cool!
 
 This document provides some simple tips on team meet-ups, whether in-person or virtual.  
 
@@ -16,6 +16,6 @@ Proven practices:
     - The clock to make sure all can share their "Discussion Preparation" content at a minimum during the meet-up (may appoint a time keeper)
     - Which team member will facilitate the next meet-up
     - Dividing up any open questions amongst the team for research and report-out at the next meet-up
-    - Note: The team facilitator does not teach -- the Holy Spirit teaches through what each member shares. The facilitator enables discussion for hearing what the Holy Spirit is teaching through each team member.
+    - Reminder: The team facilitator is not the teacher -- the Holy Spirit teaches through what each member shares. The facilitator enables discussion for hearing what the Holy Spirit is teaching through each team member.
 
 Copyright Hack4Faith and Donovan Follette. This material is subject to [Creative Commons License (CC BY-NC-SA 4.0)](https://creativecommons.org/licenses/by-nc-sa/4.0/).
