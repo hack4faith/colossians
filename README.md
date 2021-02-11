@@ -1,6 +1,6 @@
 # #Hack4Faith Presents:
 
-## A challenge-based** study of the Letter to the Colossians 
+## A challenge-based study of the Letter to the Colossians 
 
 **Welcome to The Letter of Paul to the Colossians!** In this small four chapter letter you will engage in a series of challenge-based hacks that will stretch your brain, deepen your compassion, enrich your purpose, guide your relationships with others, strengthen your faith and grow your understanding of God's great heart of love for people.
 
@@ -11,7 +11,7 @@ So open the [Quick-Start](https://github.com/hack4faith/colossians/tree/main/Qui
 
 
 # 
-## ** Background and Inspiration for #Hack4Faith and #YourFaith2Action
+## Background and Inspiration for #Hack4Faith and #YourFaith2Action
 
 **#Hack4Faith** and **#YourFaith2Action** were conceived after retirement from the world's largest software company. As a technical professional involved with training other technical professionals, we discovered over the years that the most engaging training experiences were where we provided challenge-based learning opportunities for our technical staff rather than simply step-by-step guidance. Whether for individuals or teams, this challenge-based approach coupled with "hacks" to quickly prove out technical concepts or build prototypes, became a solid model for learning.
 
