@@ -6,7 +6,7 @@
 
 The desired outcome: *"...that you stand mature and confident in all the will of God."* Colossians 4:12
 
-So browse the list of challenges, read the team-meet-ups.md document in https://github.com/folletted/Hack4Faith-Colossians/tree/master/resources, gather a meet-up team (virtual or in-person) or go-it-alone. But in any case get hacking to strengthen your faith and then exercise it with action!
+So open the Quick-Start folder, read the forming-your-team.md guidance, gather a meet-up team (virtual or in-person) or go-it-alone. But in any case, browse the list of challenges and get hacking to strengthen your faith and then exercise it with action!
 
 
 

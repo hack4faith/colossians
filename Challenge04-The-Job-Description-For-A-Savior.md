@@ -10,7 +10,7 @@ When we think about some of the most powerful and highly responsible positions o
 Read Colossians 1:15-23 in The Amplified Bible version https://www.biblegateway.com/passage/?search=colossians+1%3A15-23&version=AMP  
 
 **Challenges:**
-1. Make a quick review of a job description at a director-level role for any global corporation and use it as an example for your responses below. Or, here's a link to one for quick reference, https://github.com/folletted/Hack4Faith-Colossians/blob/master/docs/Job%20Description%20-%20Example.pdf. Using verses 15-20 in the Bible verse link above for reference, create a job description for the Savior of the world.  
+1. Make a quick review of a job description at a director-level role for any global corporation and use it as an example for your responses below. Or, here's a link to one for quick reference, https://github.com/hack4faith/colossians/blob/main/docs/Job%20Description%20-%20Example.pdf. Using verses 15-20 in the Bible verse link above for reference, create a job description for the Savior of the world.  
     1. Write a description for this **Role**. (You may want to write your responses to 1.2 and 1.3 first and then write this as a summary of those.)
     1. List the specific **Responsibilities** and required competencies.
     1. List the **Qualifications** needed to fulfill this role.
