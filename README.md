@@ -57,3 +57,4 @@ Freely available web-based Bible study tools used:
 
 
 Copyright Hack4Faith and Donovan Follette. This material is subject to [Creative Commons License (CC BY-NC-SA 4.0)](https://creativecommons.org/licenses/by-nc-sa/4.0/).
+Visit [Hack4Faith.org](https://www.hack4faith.org/) for 'Contact Us' information.
