@@ -55,6 +55,9 @@ Freely available web-based Bible study tools used:
 - William Barclay's Daily Bible Study: https://www.studylight.org/commentaries/dsb.html
 - And more
 
+Visit [Hack4Faith.org](https://www.hack4faith.org/) for 'Contact Us' information.
+
+Twitter: @Hack4Faith, #Hack4Faith, #YourFaith2Action
 
 Copyright Hack4Faith and Donovan Follette. This material is subject to [Creative Commons License (CC BY-NC-SA 4.0)](https://creativecommons.org/licenses/by-nc-sa/4.0/).
-Visit [Hack4Faith.org](https://www.hack4faith.org/) for 'Contact Us' information.
+
