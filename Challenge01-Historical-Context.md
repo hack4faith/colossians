@@ -21,7 +21,7 @@ Read the "Book Overview - Colossians" from William Barclay's Daily Study Bible -
 
 1. From the issues facing the Colossian believers, in your day-to-day life, how do you see these same issues facing believers today?
 
-**#YourHack4Faith:**
+**#Hack4Faith:**
 
 Write 4 faith phrases that are your takeaways from this challenge.
 1. Phrase - 
@@ -29,7 +29,7 @@ Write 4 faith phrases that are your takeaways from this challenge.
 1. Phrase - 
 1. Phrase - 
 
-**#Faith2Action:**
+**#YourFaith2Action:**
 
 From your Faith phrases above, write 2 action statements.
 1. Statement - 
