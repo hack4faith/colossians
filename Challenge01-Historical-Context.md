@@ -10,7 +10,7 @@ You've started to read the book of Colossians and you've never read it before or
 
 **Reading:**
 
-Read the "Book Overview - Colossians" from William Barclay's Daily Study Bible - Colossians here, https://www.studylight.org/commentaries/dsb/colossians.html. 
+Read the "Book Overview - Colossians" from the Verse-by-Verse Bible Commentary here, https://www.studylight.org/commentary/colossians.html. 
 
 **Challenges:**
 1. Prayerfully, list at least four discoveries from this overview of Colossians that you specifically want to lock down in your understanding and faith while studying this Holy Spirit inspired letter from the apostle Paul. 
@@ -44,7 +44,7 @@ Write a prayer asking the Holy Spirit for His leading and teaching as you study 
 - Identify 2 key discoveries you would like to share.
 
 **Online Resources:**
-- William Barclay's Daily Study Bible
+- Verse-by-Verse Bible Commentary
 
 
 Copyright Hack4Faith and Donovan Follette. This material is subject to [Creative Commons License (CC BY-NC-SA 4.0)](https://creativecommons.org/licenses/by-nc-sa/4.0/).
