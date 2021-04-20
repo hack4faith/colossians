@@ -11,7 +11,7 @@ Read Colossians 1:1-2 in the "New Revised Standard Version" of the Bible. https:
  
 
 **Challenges:**
-1. Using the online resource link provided, study each word; saints, grace and peace. From the "Thayer's Definition" write a definition for each of the following in your own words. 
+1. Using the online resource link provided, study each word; saints, grace and peace. From the "Definition" section, notice the tabs for Thayer, Strong, and Mounce. Click on each tab to read each and then write a definition for each of the following in your own words. 
     - Saints, https://www.studylight.org/lexicons/greek/40.html. Write your definition.
     - Grace, https://www.studylight.org/lexicons/greek/5485.html. Write your definition.
     - Peace, https://www.studylight.org/lexicons/greek/1515.html. Write your definition.
