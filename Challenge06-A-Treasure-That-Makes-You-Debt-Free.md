@@ -25,13 +25,13 @@ Read Colossians 2:1-15 in the Amplified Bible, https://www.biblegateway.com/pass
         1. *"overflowing in gratitude"*
     1. Do a simple sketch representing what you want your faith-life to look like.
 
-1. Read a short passage from William Barclay's Daily Study Bible. Follow this link, https://www.studylight.org/commentaries/dsb/colossians-2.html. Once on the page, in your browser from its menu options, select Find and search for "triumphant forgiveness" on the web page. In the section titled, "Triumphant Forgiveness (Colossians 2: 13-15)" read the 9 paragraphs.
+1. William Barclay's Daily Study Bible for Colossians labels Colossians 2:13-15, "Triumphant Forgiveness." Re-read 2:13-15 from the Bible reading link above and review the "footnotes" (g.) and (h.) below the passage.
     1. What was your debt?
-    1. Your treasure has made you debt-free. Which of the "vivid pictures" used by the apostle Paul speaks most profoundly to you about having your debt wiped out?
-        1. A hand-signed I.O.U. that is forgiven?
-        1. A sponge that blots out the writing as if it had never been?
-        1. Nailing the accusations that stood against you, to the cross of Christ, never to be seen again?
-    1. Barclay writes, *"One other great picture flashes on the screen of Paul's mind. Jesus has stripped the powers and authorities and made them his captives. … Paul thinks of Jesus as a conqueror enjoying a kind of cosmic triumph, and in his triumphal procession are the powers of evil, beaten for ever, for every one to see."*
+    1. Your treasure (from 2:1-5) has made you debt-free. The apostle Paul provides some "vivid word pictures"  about having your debt wiped out. Which one of these speaks most profoundly to you and why?
+        1. A "certificate of debt" (e.g. a hand-signed I.O.U.) that is forgiven.
+        1. "Cancelled out/blotted out" (e.g. a sponge that blots out ink) the writing as if it had never been.
+        1. Nailing the certificate (e.g. accusations) that stood against you, to the cross of Christ, never to be seen again.
+    1. William Barclay's Daily Study Bible for Colossians states, *"One other great picture flashes on the screen of Paul's mind. Jesus has stripped the powers and authorities and made them his captives. … Paul thinks of Jesus as a conqueror enjoying a kind of cosmic triumph, and in his triumphal procession are the powers of evil, beaten for ever, for every one to see."*
         1. Take a moment and in your mind's eye be a spectator viewing this triumphal procession - it was for you. In your prayer below express your heart for this triumph, the treasure you have and your freedom from the debt that stood against you.
 
 **#Hack4Faith:**
