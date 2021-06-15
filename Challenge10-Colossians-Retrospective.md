@@ -43,8 +43,9 @@ Title for your presentation:
 
 **#YourFaith2Action:**
 
-Who is going to be in your next group as you facilitate another Colossians **#Hack4Faith** team?
-1. Your proposed meet-up team members: 
+In the future, prayerfully consider facilitating or teaming up with a trusted friend to facilitate a Colossians **#Hack4Faith** team. When you're ready, who is on your heart to be a part of your team?
+1. Your proposed meet-up team members:
+1. If you need any guidance visit the [Quick-Start](https://github.com/hack4faith/colossians/tree/main/Quick-Start) folder. 
 
 **Prayer:**
 
