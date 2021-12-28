@@ -9,6 +9,5 @@ These are some of the freely available web-based Bible study tools used:
 - Interlinear Bible: https://biblehub.com/interlinear
 - Bible Versions: https://www.biblegateway.com/, https://biblehub.com/
 - Lexicons: https://www.studylight.org/lexicons
-- William Barclay's Daily Bible Study: https://www.studylight.org/commentaries/dsb.html
 
 Copyright Hack4Faith and Donovan Follette. This material is subject to [Creative Commons License (CC BY-NC-SA 4.0)](https://creativecommons.org/licenses/by-nc-sa/4.0/).
