@@ -16,13 +16,13 @@ Read Colossians 1:3-14 in the "New International Version" of the Bible. https://
     - Love - https://www.studylight.org/dictionaries/eng/ved/l/love.html, refer to A-1, paragraphs 5 and 6 -- both start with "Christian love…" and paragraph 7. 
     - Hope - https://www.studylight.org/dictionaries/eng/ved/h/hope-hope.html, A-1, paragraph 1.
 
-1. In verses 1:9-12 there are a number of specific things that the apostle Paul prays for the Colossians. List the ones you see and its intended result/outcome in the lives of those he prays for.
+1. In verses 1:9-12 there are some specific things that the apostle Paul prays for the Colossians. List each one you see and its intended result/outcome in the lives of those he prays for.
     - What to pray for? 
         - What is the intended result of praying for this?
     - What to pray for? 
         - What is the intended result of praying for this?
     - What to pray for? 
-        - What is the intended result of praying for 
+        - What is the intended result of praying for this?
 
 1. Reread verses 1:13-14. Write briefly how these verses are a motivation to pray for others according to what you discovered in verses 1:9-12.
 
