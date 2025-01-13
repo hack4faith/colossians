@@ -11,6 +11,11 @@ The desired outcome: *"...that you stand mature and confident in all the will of
 Whether you are new to your walk of faith or you have known the life and love of God for years, simply open the [Quick-Start](https://github.com/hack4faith/colossians/tree/main/Quick-Start) folder, read the [forming-your-team.md](https://github.com/hack4faith/colossians/blob/main/Quick-Start/forming-your-team.md) guidance, gather a meet-up team (virtual or in-person) or go-it-alone. But in any case, browse the list of challenges and get hacking to strengthen your faith and then exercise it with action!
 
 
+**Additional Resources from [Hack4Faith.org](https://hack4faith.org/)**
+- [The Colossians Challenge](https://hack4faith.org/colossians-challenge) - A Discussion/Study 
+- [Read2See](https://hack4faith.org/read2see) - A 12 book "short-list" of what to read first in the Bible (on [GitHub](https://github.com/hack4faith/read-to-see))
+- [The James Challenge](https://hack4faith.org/james-challenge) - A Discussion/Study (on [GitHub](https://github.com/hack4faith/james))
+
 
 # 
 ## Background and Inspiration for #Hack4Faith and #YourFaith2Action
